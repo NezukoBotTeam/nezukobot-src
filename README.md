@@ -1,2 +1,21 @@
-# nezukobot-src
-Source Code Backup for NezukoBot
+# Có cái loz ấy tin người vkl
+
+# Có cái loz ấy tin người vkl
+
+# Có cái loz ấy tin người vkl
+
+# Có cái loz ấy tin người vkl
+
+# Có cái loz ấy tin người vkl
+
+# Có cái loz ấy tin người vkl
+
+# Có cái loz ấy tin người vkl
+
+# Có cái loz ấy tin người vkl
+
+# Có cái loz ấy tin người vkl
+
+# Có cái loz ấy tin người vkl
+
+# Có cái loz ấy tin người vkl
