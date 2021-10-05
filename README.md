@@ -40,6 +40,24 @@
 
 # C ó  c á i  l o z  ấ y  t i n  n g ư ờ i  v k l
 
+# C ó  c á i  l o z  ấ y  t i n  n g ư ờ i  v kl
+
+# C ó  c á i  l o z  ấ y  t i n  n g ư ờ i  vkl
+
+# C ó  c á i  l o z  ấ y  t i n  n g ư ờ i vkl
+
+# C ó  c á i  l o z  ấ y  t i n  n g ư ời vkl
+
+# C ó  c á i  l o z  ấ y  t i n  n g ười vkl
+
+# C ó  c á i  l o z  ấ y  t i n  n gười vkl
+
+# C ó  c á i  l o z  ấ y  t i n  người vkl
+
+# C ó  c á i  l o z  ấ y  t i n người vkl
+
+# C ó  c á i  l o z  ấ y  t in người vkl
+
 # Có cái loz ấy tin người vkl
 
 
