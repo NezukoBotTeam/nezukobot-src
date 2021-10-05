@@ -32,13 +32,13 @@
 
 # C ó  c á i  l o z  ấ y  t i n  n g ư ời vkl
 
-# Có cái loz ấy tin người vkl
+# C ó  c á i  l o z  ấ y  t i n  n g ư ờ i vkl
 
-# Có cái loz ấy tin người vkl
+# C ó  c á i  l o z  ấ y  t i n  n g ư ờ i  vkl
 
-# Có cái loz ấy tin người vkl
+# C ó  c á i  l o z  ấ y  t i n  n g ư ờ i  v kl
 
-# Có cái loz ấy tin người vkl
+# C ó  c á i  l o z  ấ y  t i n  n g ư ờ i  v k l
 
 # Có cái loz ấy tin người vkl
 
